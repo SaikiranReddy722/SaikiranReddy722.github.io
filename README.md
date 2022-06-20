@@ -1,1 +1,1 @@
-# SaikiranReddy722.github.io
+Vinayak Damodar Savarkar, known among followers by the honorific prefix Veer, was an Indian politician, activist, and writer. He developed the Hindu nationalist political ideology of Hindutva while imprisoned at Ratnagiri in 1922. He was a leading figure in the Hindu Mahasabha
